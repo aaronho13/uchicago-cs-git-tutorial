@@ -1,3 +1,3 @@
-Aaron Ho Math
+Aaron Ho
 
 
