@@ -1,3 +1,3 @@
-Aaron Ho aaronho
+Aaron Ho aaronho UChicago CS Git Tutorial
 
 
